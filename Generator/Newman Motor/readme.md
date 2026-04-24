@@ -1,1 +1,2 @@
 - [1810 Newman Motor Generator - Better Than Shop Bought Generator](https://youtu.be/YMteHNWvuic)
+- [019 Joule Thieves, MOTs and The Newman Motor](https://youtu.be/vAtjaRvjNXg)
