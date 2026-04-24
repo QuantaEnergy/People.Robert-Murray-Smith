@@ -1,4 +1,6 @@
-https://m.youtube.com/@ThinkingandTinkering/search?query=Battery
+# Channel:
+## @ThinkingandTinkering
+Search: https://m.youtube.com/@ThinkingandTinkering/search?query=Battery
 
 - [1237 Don't Be Fooled By This Battery - A Contender With Lithium](https://youtu.be/pj6M18B-gDY)
 - [1245 How To Make Your Own Super Battery - Copper Oxide Zinc](https://youtu.be/81cFTy9MqIA)
@@ -10,3 +12,6 @@ https://m.youtube.com/@ThinkingandTinkering/search?query=Battery
 - [1793 A Battery That Is Easy To Make In Any Size](https://youtu.be/2P718JniEDs)
 - [1956 The Amazing DIY Clay Battery - A Safe Battery Anyone Can Make](https://youtu.be/jPGP1R7k-zQ)
 - [Perpetual Battery - Powered By Water](https://youtu.be/HGQHVc9z8yQ)
+
+## @TnTOmnibus
+Search: https://www.youtube.com/@TnTOmnibus/search?query=battery
