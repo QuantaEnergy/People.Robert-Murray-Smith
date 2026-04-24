@@ -1,0 +1,2 @@
+- [1888 Rethinking The Tesla Turbine For Wind Power](https://youtu.be/78VQnFZxwsc)
+- [1890 The Next Step In Tesla Turbines](https://youtu.be/Tynjk555cxk)
