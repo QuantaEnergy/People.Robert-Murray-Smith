@@ -1,0 +1,1 @@
+- [001 Solar Thermal - The Poor Cousin Of Energy Generation](https://youtu.be/Jpj9gb31BDY)
