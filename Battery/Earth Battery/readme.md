@@ -1,2 +1,3 @@
 - [042 The Earth Battery](https://youtu.be/m_xngL1fBz8)
 - [The Earth Battery - How To Improve It - 1](https://youtu.be/gUUOZGa8hUo)
+- [The Earth Battery As A 'Free' Energy Generator](https://youtu.be/z_IerZ3JBys)
