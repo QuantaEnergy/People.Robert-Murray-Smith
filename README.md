@@ -1,4 +1,4 @@
-# Robert-Murray-Smith.Inspire
+# People.Robert-Murray-Smith
 # Home:
 channel:
 - https://www.youtube.com/@ThinkingandTinkering
