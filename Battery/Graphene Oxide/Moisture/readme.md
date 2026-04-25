@@ -1,0 +1,1 @@
+- [1543 Self charging battery generates electricity from moisture in the air](https://youtu.be/kIc2mlcMTMw)
