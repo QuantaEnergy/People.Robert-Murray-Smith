@@ -11,6 +11,7 @@ Search: https://m.youtube.com/@ThinkingandTinkering/search?query=Battery
 - [1752 A DIY Sand Battery - The Theory, Practice And Use](https://youtu.be/Icai6OOIh2M)
 - [1793 A Battery That Is Easy To Make In Any Size](https://youtu.be/2P718JniEDs)
 - [1956 The Amazing DIY Clay Battery - A Safe Battery Anyone Can Make](https://youtu.be/jPGP1R7k-zQ)
+- [2064 Lost Secrets in the Art of Battery Making](https://youtu.be/RK2tFyHqaRM)
 - [Perpetual Battery - Powered By Water](https://youtu.be/HGQHVc9z8yQ)
 
 ## @TnTOmnibus
