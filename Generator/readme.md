@@ -1,1 +1,5 @@
 - [2238 The Secrets Of Generators - And Using Them To Build A New Type Of Generator](https://youtu.be/GDvBYJch2BU)
+- [1869 The Twisted Serpent A Generator For Everyone](https://youtu.be/QRY4dSEXD1o)
+- [2324 A 3 Phase Serpentine Coil Generator](https://youtu.be/iqZypsAIppo)
+- [2287 Building A Generator](https://youtu.be/e6TBUp1cBfg)
+- [1968 The Generator You Have Never Heard Of - Transverse Flux](https://youtu.be/y8weP9Cpphw)
