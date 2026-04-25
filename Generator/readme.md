@@ -1,0 +1,1 @@
+- [2238 The Secrets Of Generators - And Using Them To Build A New Type Of Generator](https://youtu.be/GDvBYJch2BU)
