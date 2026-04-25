@@ -1,0 +1,2 @@
+- [A Simple Homemade Solar Cell](https://youtu.be/WZK7niUtvjI)
+- [How To Turn A Broken Battery Into A Solar Cell](https://youtu.be/ywVplky5SQ8)
