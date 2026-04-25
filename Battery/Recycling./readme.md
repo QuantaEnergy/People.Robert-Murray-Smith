@@ -1,0 +1,3 @@
+- [1272 How To Reuse Old Phone Batteries](https://youtu.be/n0n6gYmQTLs)
+- [1275 How To Convert Old Phone Batteries For 101 Uses](https://youtu.be/Qm54Im6-7mk)
+- [1273 Inside A Moble Phone Battery](https://youtu.be/_1lFyYK004k)
