@@ -1,3 +1,4 @@
 - [1840 Atmospheric Electricity An Exciting Possibility](https://youtu.be/GsYNxDE-O-4)
 - [1851 There Really Is Free Energy Everywhere - Electrostatic Motors](https://youtu.be/AThJ8qxVdGo)
 - [1861 Getting More Power From The Atmosphere](https://youtu.be/TrhzkCZ5xf8)
+- [028 Unlocking Energy From The Sky - The Fractal Capacitor](https://youtu.be/kqqkpfd7OCc)
