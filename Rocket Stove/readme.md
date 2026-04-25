@@ -3,3 +3,5 @@
 - [1763 A Glass Rocket Stove](https://youtu.be/wKifjca0KOg)
 - [1788 How To Use The Heat From A Rocket Stove Inside](https://youtu.be/U67nP2-bmuM)
 - [1742 The Rocket Stove - Explained and Demystified #rocketstove](https://youtu.be/aXAVxqZPrSo)
+- [1622 The Best Insulation For A Rocket Stove And How To Make It](https://youtu.be/neTGwG0QwDs)
+- [1741 How To Change A Rocket Stove For Indoor Use #rocketstove](https://youtu.be/hx9kCk_-XgI)
