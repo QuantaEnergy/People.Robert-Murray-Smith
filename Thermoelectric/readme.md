@@ -1,3 +1,4 @@
 - [1624 Thermoelectric Generators Have Just Made A Huge Leap Forward](https://youtu.be/0QByXZ7XyVE)
 - [1618 Putting A Thermo Electric Generator On Solar Panels](https://youtu.be/LWPljHcMjNc)
 - [2058 The Lost Rectifier As A Thermoelectric Generator](https://youtu.be/v50bj1MYjuM)
+- [2220 DIY Thermoelectric Generators - What You Need To Know](https://youtu.be/0uFlPcchhVw)
