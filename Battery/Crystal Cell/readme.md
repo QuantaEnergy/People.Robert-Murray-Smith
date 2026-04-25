@@ -1,1 +1,2 @@
+- [1228 All About Crystal Batteries And How To Make Them Without All The Tedious Messing About](https://youtu.be/SoFfldA7w3g)
 - [1229 Boiled Potato Batteries and Crystal Cells](https://youtu.be/hvl3J7Rm7aQ)
