@@ -1,0 +1,4 @@
+- [1703 Mini Gasifier Or Mini Rocket Stove With Mantle](https://youtu.be/j1MTlspYwxs)
+- [1743 A Rocket Stove Kit - No Welding, No Tools, No Experience = No Problem](https://youtu.be/c5Q_5XKDXK4)
+- [1763 A Glass Rocket Stove](https://youtu.be/wKifjca0KOg)
+- [1788 How To Use The Heat From A Rocket Stove Inside](https://youtu.be/U67nP2-bmuM)
