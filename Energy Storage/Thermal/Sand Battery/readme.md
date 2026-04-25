@@ -1,1 +1,2 @@
 - [030 Sand Batteries And Rocket Stoves](https://youtu.be/dBJIdW8hS1I)
+- [1752 A DIY Sand Battery - The Theory, Practice And Use](https://youtu.be/Icai6OOIh2M)
