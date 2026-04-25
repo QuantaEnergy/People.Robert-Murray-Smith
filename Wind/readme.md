@@ -1,1 +1,4 @@
+- [1893 The Darwin Feather Turbine - Looking Like A Winner](https://youtu.be/t4TdGgzZqmI)
+- [1882 A Groundbreaking Wind Turbine](https://youtu.be/RqxGyCbMXGo)
 - [1889 Ground Breaking Wind Turbine Update](https://youtu.be/wWZLxYIKlpQ)
+- [033 The Magic Mechanism For Wind Power](https://youtu.be/q7JzuM0akZc)
