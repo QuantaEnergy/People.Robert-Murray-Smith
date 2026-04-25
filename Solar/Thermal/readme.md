@@ -1,1 +1,2 @@
 - [001 Solar Thermal - The Poor Cousin Of Energy Generation](https://youtu.be/Jpj9gb31BDY)
+- [1721 A DIY Solar Cell Made From A Pencil And A Bit Of Paper](https://youtu.be/rm4FC68iaZg)
