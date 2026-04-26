@@ -1,0 +1,1 @@
+- [1482 A Diy Super Efficient (93% Efficient) Wind Turbine](https://youtu.be/AwC8YRaIJlQ)
