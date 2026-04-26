@@ -1,0 +1,2 @@
+- [1018 Reusing A Washing Machine Motor As A DC Motor Or A Generator](https://youtu.be/Kiez7fqro_g)
+- [1523 Universal Motor For Wind turbines](https://youtu.be/gJrpwhBHpVM)
