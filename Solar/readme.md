@@ -1,3 +1,4 @@
 - [2207 Solar Power - We Have Been Doing It Wrong](https://youtu.be/1Wj4ePYM9qU)
 - [2198 The Spherical Solar Cell](https://youtu.be/hu8LA1JGYIY)
 - [2256 New Solar Booster - Easy DIY, Simple, Cheap And Effective](https://youtu.be/WknAjLlLk_g)
+- [A Simple Homemade Solar Cell](https://youtu.be/WZK7niUtvjI)
