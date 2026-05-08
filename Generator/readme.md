@@ -3,3 +3,5 @@
 - [2324 A 3 Phase Serpentine Coil Generator](https://youtu.be/iqZypsAIppo)
 - [2287 Building A Generator](https://youtu.be/e6TBUp1cBfg)
 - [1968 The Generator You Have Never Heard Of - Transverse Flux](https://youtu.be/y8weP9Cpphw)
+- [2227 Choosing Motors To Turn Into Generators](https://youtu.be/aa8SCc8ohmk)
+- [2209 Switched Flux Generators](https://youtu.be/mN8PMm3IeIM)
